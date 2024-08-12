@@ -2,4 +2,5 @@
 https://rentry.co/ztch9w2o
 </p>
 
-![stupid_baby-removebg-preview](https://github.com/user-attachments/assets/98440794-6c05-4661-8251-a3699cadfd29)
+![image](https://github.com/user-attachments/assets/56ecf208-a62d-4944-8ae7-065bbda06925)
+
