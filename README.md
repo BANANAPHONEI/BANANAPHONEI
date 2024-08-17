@@ -2,5 +2,4 @@
 https://rentry.co/ztch9w2o
 </p>
 
-![image](https://github.com/user-attachments/assets/56ecf208-a62d-4944-8ae7-065bbda06925)
-
+![pobia_ota (@pobia_ota) on X](https://github.com/user-attachments/assets/062d42ee-9201-4197-addd-f06fe75e8bd0)
